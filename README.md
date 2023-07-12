@@ -1,0 +1,2 @@
+# Jetking_Practical_Exam
+THIS IS A REPOISTORY FOR UPLOADING PRATICAL 
